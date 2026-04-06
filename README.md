@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @ZhugeB1ao
-- 👀 I’m interested in something 
+- 👀 I’m interested in coding
 - 🌱 I’m currently learning FE
 - 💞️ I’m looking to collaborate on (Actually I'm not sure)
 - 📫 How to reach me (https://www.instagram.com/dhg_baoo)
